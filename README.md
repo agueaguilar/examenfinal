@@ -1,2 +1,0 @@
-# examenfinal
-repaso general
